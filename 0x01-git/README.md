@@ -1,3 +1,4 @@
-Growth mindset leads to doing hard things
+Growth mindset leads to doing hard things.
+
 peace
 clear
